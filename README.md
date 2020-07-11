@@ -1,2 +1,0 @@
-# Kyrsovaya
-Kyrsovaya po OC
